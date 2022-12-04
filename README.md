@@ -1,0 +1,1 @@
+# aidosorynbay.github.io
